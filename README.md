@@ -1,1 +1,1 @@
-# Jawir
+![gambar](https://github.com/IDOYGAMING/Jawir/blob/main/ss/maxresdefault.jpg)
